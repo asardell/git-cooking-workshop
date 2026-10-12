@@ -14,10 +14,10 @@
 
 ## Preparation
 
-1. Dans un saladier, verser la farine, le sucre et le sel.
-2. Ajouter les oeufs et mélanger rapidement.
-3. Verser le lait petit a petit tout en mélangeant pour éviter les grumeaux
-4. Ajouter le beurre fondu et laisser reposer la pâte pendant 5 minutes.
+1. Faite fondre le beurre dans un saladier.
+2. Ajouté le sucre, l'huile, le sel puis la farine.
+3. Verser le lait petit a petit tout en mélangeant pour éviter les grumeaux.
+4. Ajouer les oeufs et laisser reposer la pâte pendant 5 minutes.
 5. Faire chauffer une poêle avec beaucoup d'huile.
 6. Verser toute la pate dans la poêle et cuire pendant 30 minutes sans retourner.
 7. Retirer la crêpe et servir froid avec du citron et du chocolat.
