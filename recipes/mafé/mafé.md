@@ -16,6 +16,7 @@
 - 2 kg de riz
 - 1 pincée de sel
 - 500 g de sucre
+- 1 kg de piment rouge
 
 ## Préparation
 
