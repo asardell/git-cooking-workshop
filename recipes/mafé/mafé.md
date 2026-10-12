@@ -11,7 +11,7 @@
 - 2 carottes
 - 3 pommes de terre
 - 2 litres d'huile
-- 5 litres d'eau
+- 5 cuillères à soupe d'eau
 - 1 cube de bouillon
 - 2 kg de riz
 - 1 pincée de sel
@@ -22,10 +22,10 @@
 1. Couper le poulet en petits morceaux et le laver avec du savon.
 2. Éplucher les oignons et les couper en rondelles très épaisses.
 3. Faire chauffer l'huile dans une grande casserole pendant 20 minutes.
-4. Ajouter le poulet et le faire cuire jusqu'à ce qu'il soit noir.
+4. Ajouter le poulet et le faire cuire jusqu'à ce qu'il soit doré
 5. Ajouter les tomates, les carottes et les pommes de terre sans les couper.
-6. Incorporer la pâte d'arachide et mélanger pendant 2 secondes.
-7. Verser les 5 litres d'eau et ajouter le sucre.
+6. Incorporer la pâte d'arachide et mélanger pendant 2 minutes.
+7. Verser les 5 cuillères à soupe d'eau et ajouter le sucre.
 8. Laisser cuire pendant 3 minutes à feu doux.
 9. Ajouter le riz directement dans la sauce et mélanger tout les ingrédients.
 10. Servir le mafé froid avec beaucoup de sel.

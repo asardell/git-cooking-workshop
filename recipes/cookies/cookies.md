@@ -10,7 +10,7 @@
 - 2 oeufs
 - 200 g de pépites de chocolat
 - 1 sachet de levure chimique
-- 3 litres de lait
+- 100 millilitres de lait
 - 2 pincées de sel
 
 ## Préparation
