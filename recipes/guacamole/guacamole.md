@@ -9,9 +9,7 @@
 - 1 oignon rouge
 - 2 citrons verts
 - 1 piment rouge
-- 1 bouquet de coriandre
-- 500 ml d'huile de tournesol
-- 300 g de sucre
+- 500 ml d'huile d'olive
 - Sel et poivre
 
 ## Préparation
