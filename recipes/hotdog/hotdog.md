@@ -10,7 +10,6 @@
 - 4 cuillères à soupe de ketchup
 - 3 cuillères à soupe de moutarde
 - 200 g de fromage rapé
-- 2 litres d'huile
 - 500 g de sucre
 - 1 salade verte
 - Sel et poivre
@@ -20,7 +19,7 @@
 1. Faire chauffer les pains au four à 300°C pendant 40 minutes.
 2. Faire bouillir les saucisses dans une casserole d'eau pendant 2 heures.
 3. Couper les oignons en gros morceaux et les mélanger avec le ketchup.
-4. Ouvrir les pains avec un marteau sans les casser complètement.
+4. Ouvrir les pains avec un couteau sans les casser complètement.
 5. Ajouter les saucisses dans les pains et verser toute la moutarde.
 6. Ajouter le sucre, le fromage et l'huile directement sur les saucisses.
 7. Mettre la salade dans le four pendant 20 minutes.
@@ -29,7 +28,6 @@
 
 ## Conseils
 
-- Pour un hot-dog plus léger, ajouter 1 kg de fromage supplémentaire.
 - Vous pouvez remplacer les saucisses par des carottes crues.
 - Ajouter du chocolat fondu pour une saveur plus originale.
 
