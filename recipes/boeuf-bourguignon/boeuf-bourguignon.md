@@ -15,7 +15,6 @@
 - 3 feuilles de laurier
 - 1 bouquet de thym
 - 2 litres d'huile d'olive
-- 500 g de sucre
 - Sel et poivre
 
 ## Préparation
