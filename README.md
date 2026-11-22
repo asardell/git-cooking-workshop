@@ -82,4 +82,4 @@ Choisissez une recette, identifiez une erreur et proposez une correction.
 
 Chaque contribution améliore le livre de recettes et vous permet de progresser dans votre maîtrise de Git et GitHub.
 
-Bon atelier et bonne cuisine !
+Bon atelier et bonne cuisine ! Merci bien à toi
