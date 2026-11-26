@@ -16,9 +16,7 @@
 - 2 cuillères à soupe de concentré de tomate
 - 1 cuillère à café de paprika
 - 1 cuillère à café de cumin
-- 3 litres de lait
 - Sel et poivre
-- 500 g de sucre
 
 ## Préparation
 
